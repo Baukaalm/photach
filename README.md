@@ -42,6 +42,7 @@ FAQ чата в телеграме - https://t.me/photo_geeks
 #### Ресурсы участников:
 
 - betzy - [telegram](https://t.me/beeetzy) | [flickr](https://www.flickr.com/photos/zheka-nepsha/) | [instagram](https://www.instagram.com/zheka.nepsha/)
+- Бурчик - [website](http://shaikhislamov.com)
 - isithoodie - [telegram](https://t.me/isithoodie) | [instagram](https://www.instagram.com/isithoodie/)
 - Дамбо - [telegram](https://t.me/HeCJIoH) | [instagram](https://www.instagram.com/fotomamont/)
 - Alex Murin - [telegram](https://t.me/alexmurin) | [instagram](instagramm.com/alexmurin33)
